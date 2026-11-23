@@ -1,0 +1,1 @@
+# Sotenäs kommun
